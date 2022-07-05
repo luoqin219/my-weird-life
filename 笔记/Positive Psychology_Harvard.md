@@ -6,7 +6,7 @@ Went through part of these lectures when I was still an undergrad and it was abo
 
 ### Fun notes
 
-1. Interviewers tend to expect the professor of positive psychology to be more outgoing and less introvertive since the reason why positive psychology is much more popular than introduction to economics at Harvard is likely to be the teacher is outgoing, extremely charismatic, very cheerful and extrovert. (Looking at the massager instead of the message => **science that works not just study**)
+1. Interviewers tend to expect the professor of positive psychology to be more outgoing and less introvertive since the reason why positive psychology is much more popular than introduction to economics at Harvard is likely to be the teacher is outgoing, extremely charismatic, very cheerful and extrovert. (Looking at the messager instead of the message => **science that works not just study**)
 
 2. Words are not the sole medium of exchange in teaching and learning. We educate with silence as well. Silence gives us a chance to reflect on what we have said and heard. In authentic education, silence is treated as a trustworthy matrix for the inner work students must do, a medium for learning of the deepest sort.
 
@@ -39,3 +39,53 @@ Went through part of these lectures when I was still an undergrad and it was abo
 2. It's about chipping away the excess stone. It's about getting rid of limitations, of barriers, whether it's the fear of failure, something that we didn't have as kids. But today most people in our culture have it. It's about chipping away perfectionism that is deblitating and often hurts us. It's about chipping away our ability for success, because maybe we are afraid of success. Maybe we feel guity about some of the things that we have in our life, and that in turn limits us. Maybe it's about chipping away the limitations on our relationships in while we don't thrive within them. 
 
 3. The importance of gratitude, the importance of physical exercise, the importance of spending time on our relationships, and the importance of taking time aside and simplifying. There is no WOW. A good life, a fulfilling life, a rich life includes ups and downs, includes pain and getting up again, includes failure and getting up again. It includes success and celebrating it. Victories and losses, ups and downs. It's not about one secret. Yes, a lot of it is commen sense. The aim of this class is to make common sense more common, especially in the real-world application. 
+
+4. Two and two things along mattered in terms of determining who will be the extraordinary successful and successful: the first thing was the extraordinarily successful groups really believe in themselves. They thought they could do well. They were driven. They were motivated. They thought "I'm going to make it. I'm going to succeed." - **the sense of the confidence**. The second thing that he found was this group were always asking questions, intially of their boss, later of their employees, of their partners, children, parents, friends. They were always at the state of curiosity. Always looking up, opening up, wanting to understand the world more. **They were life-long learners**. 
+
+5. What is most personal is most general.
+
+6. **When we understand ourselves better, when we identify ourselves, we are better able to identify with others.** In fact, this is in many ways the source of empathy, of the healthy empathy. And there are studies showing people who know themselves, who study themselves, who are self-reflective, display less egregious behavior, less immoral behavior towards others. Because when we see our deep nature, what we encounter there is part of the universal nature, the similarities among us all, regardless of where we are from. 
+
+7. The simplicity on the other side of complexity - the simplicity that comes after we have chewed the idea, after we have digested it, after we have thought about it. Ideas that have been worked on. And if on the other side of complexity we can read simplcity and common sense, that's great.
+
+8. "On Monday I don't want you to call me up and tell me how wonderful it was. On Monday, **I want you to call me up and tell me what you're doing differently**." More importantly, it's how you're doing differently, how this has an impact on your life and that takes effort. **Because it is so difficult to change**. Because we know most organizational change fails, because we know most individual change fails. Unless we introduce behavioral change along with our cognitive and emotional change. Affect and cognition is not enough; behavior has to be there as well. **To do things differently very often takes courage**. 
+
+## Why study positive psychology
+
+Question: Why not just study happiness? Or well-being as part of social psychology?
+
+Stats: From 1967 to 2000, over 5000 research articles on anger, over 41000 research articles on anxiety, over 54000 articles on depression. Research on joy, 415 studies. Close to 2000 on happiness in 33 years. Life satisfaction came on top of 2500 studies. Ratio is about 21:1.
+
+Reseacher thoughts: It has revealed to us much about man's shortcomings but little about his petentialities, his virtues, his achievable aspirations or his psychological height. It is as if psychologt had voluntarily restricted itself to only half its rightful jurisdiction and that darker, meaner half.
+
+***Highlight***: The aim of positive psychologt is to **catalyze a change** in psychology from a preoccupation only with *repairing the worst things* in life to also **building the best qualities in life**.
+
+### Class Notes
+
+1. Being happy is not juest the negation of happiness. It doesn't mean just get rid of depression or anxiety that I'm experiencing. I spontaneously become happy. That's not the case. That's not how it works. And finally, prevention which is very important today, the most effective way of preventing hardship, whether it's depression, whether it's anxiety, is actually by **focusing on and cultivating the positive**. 
+
+2. **Resilience** - a class of phenomena characterized by patterns of positive adaptation in the context of significant adversity or risk. (Successful kids are not super or extraordinary kids. In fact these were ordinary kids with ordinary characteristics, that led to extraordinary results.
+
+3. **Optimisitic** but not in the detached Pollyannish sense, in that they believe in things that would work out well. **Optimisitic as an interpretation style**. Optimisitic in the sense of thinking "well, it may not work well this time. It will work out later. I have learned from what had just happened." (*Note: huh this is so me*) They had faith and sense of meaning in life. It was doing something that they really believed in. Many of them were idealistic. (*Note: huh AGAIN this is so me*). **TO BE IDEALISTIC IS TO BE REALISTIC**. Because we have a real internal need, innate need for idealism. 
+
+4. Pro-social behavior, helping other people, shifting from helplessness to helpfulness, they were significant. We enter an upward spiral between self-help and other-help. Because when we help others, we are helping ourselves. When we help ourselves, we are helping others. 
+
+5. Identify your strength. Set goals, be future-oriented, not just thinking about how bad things are today perhaps, but also think about "this is where I wanna be 5 years or 10 years from now." Have a role model. And finally, most significantly, do not bowl alone - have social support. Do not say "well, I am tough enough to do it by myself." Rather say "I'm tough enough to reach out for help." - the strength to admit weaknesses as well. The strength to admit a need.
+
+6. The important thing about social support is **identifying the right people**. People who, when you reach out to them, will reach back to you and will be able to give back.
+
+7. "We see what we look for and we miss much of what we are not looking for even though it is there. Our experience of the world is heavily influenced by where we place our attention."
+
+8. 《Marva Collins' Way》- a book for people wanting to be teachers, leaders and parents
+
+9. Passive victim -> active agent: I take action, I take responsibility, I go on to places after experiencing the pain (giving ourselves the permission to be human). Self-perception theory: action will increase our level of confidence, and then more hope and optimisim is a result, and they become a self-fulfilling prophecy.
+
+10. No one is coming. You are responsible for your life, for your self-confidence, for your self-esteem, for your happiness.
+
+### Personal Notes
+
+1. Going through some of the content is like look back what I have done and gradually grown into and suddenly realize how my personal life falls under positive psychology perfectly. Well, I probably learnt these in a hard way but kids who have not experienced enough may not be able to extract all the essense. Good things deserve repetitive visits.
+
+2. About social support on identifying the right people: I think that's why I'm always picky at people connections and trying to cultivate better connections if I have no choice in some cases. We can be impacted hugely by people around, so if we want to better and grow ourselves in an easier/happier way, get the people who not only love you but also know how to love you in a way that best suits you, meaning that they mostly understand what you need, what you truly want, and what will make you happy. It's hard - it requires maturity, empathy, knowledge, even intelligence and some luck. The way I think of to be responsible for my own life is to make cautious choices when it comes to letting someone really step into my life and letting someone go if we are not easily happy together. Basically find the right connection instead of cultivating it from scratch especially when we are already grown-ups. People can always naturally find their perfectly matched groups - if there's too much drama or torture, I think it means people involved could all have done better/wiser. Willingness to grow and growth pace might be the most important factors for me to identify whether it's "right".
+
+3. TODO: think more about to be idealistic is to be realistic
