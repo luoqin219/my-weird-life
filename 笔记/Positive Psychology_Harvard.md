@@ -62,11 +62,11 @@ Reseacher thoughts: It has revealed to us much about man's shortcomings but litt
 
 ### Class Notes
 
-1. Being happy is not juest the negation of happiness. It doesn't mean just get rid of depression or anxiety that I'm experiencing. I spontaneously become happy. That's not the case. That's not how it works. And finally, prevention which is very important today, the most effective way of preventing hardship, whether it's depression, whether it's anxiety, is actually by **focusing on and cultivating the positive**. 
+1. Being happy is not just the negation of happiness. It doesn't mean just get rid of depression or anxiety that I'm experiencing. I spontaneously become happy. That's not the case. That's not how it works. And finally, prevention which is very important today, the most effective way of preventing hardship, whether it's depression, whether it's anxiety, is actually by **focusing on and cultivating the positive**. 
 
-2. **Resilience** - a class of phenomena characterized by patterns of positive adaptation in the context of significant adversity or risk. (Successful kids are not super or extraordinary kids. In fact these were ordinary kids with ordinary characteristics, that led to extraordinary results.
+2. **Resilience** - a class of phenomena characterized by patterns of positive adaptation in the context of significant adversity or risk. (Successful kids are not super or extraordinary kids. In fact these were ordinary kids with ordinary characteristics, that led to extraordinary results.）
 
-3. **Optimisitic** but not in the detached Pollyannish sense, in that they believe in things that would work out well. **Optimisitic as an interpretation style**. Optimisitic in the sense of thinking "well, it may not work well this time. It will work out later. I have learned from what had just happened." (*Note: huh this is so me*) They had faith and sense of meaning in life. It was doing something that they really believed in. Many of them were idealistic. (*Note: huh AGAIN this is so me*). **TO BE IDEALISTIC IS TO BE REALISTIC**. Because we have a real internal need, innate need for idealism. 
+3. **Optimisitic** but not in the detached Pollyannish sense, in that they believe in things that would work out well. **Optimisitic as an interpretation style**. Optimisitic in the sense of thinking "*<u>well, it may not work well this time. It will work out later. I have learned from what had just happened</u>*." (*Note: huh this is so me*) They had faith and sense of meaning in life. It was doing something that they really believed in. Many of them were idealistic. (*Note: huh AGAIN this is so me*). **TO BE IDEALISTIC IS TO BE REALISTIC**. Because we have a real internal need, innate need for idealism. 
 
 4. Pro-social behavior, helping other people, shifting from helplessness to helpfulness, they were significant. We enter an upward spiral between self-help and other-help. Because when we help others, we are helping ourselves. When we help ourselves, we are helping others. 
 
@@ -76,7 +76,7 @@ Reseacher thoughts: It has revealed to us much about man's shortcomings but litt
 
 7. "We see what we look for and we miss much of what we are not looking for even though it is there. Our experience of the world is heavily influenced by where we place our attention."
 
-8. 《Marva Collins' Way》- a book for people wanting to be teachers, leaders and parents
+8. 《Marva Collins' Way》- a book for people wanting to be teachers, leaders and parents.
 
 9. Passive victim -> active agent: I take action, I take responsibility, I go on to places after experiencing the pain (giving ourselves the permission to be human). Self-perception theory: action will increase our level of confidence, and then more hope and optimisim is a result, and they become a self-fulfilling prophecy.
 
@@ -89,3 +89,23 @@ Reseacher thoughts: It has revealed to us much about man's shortcomings but litt
 2. About social support on identifying the right people: I think that's why I'm always picky at people connections and trying to cultivate better connections if I have no choice in some cases. We can be impacted hugely by people around, so if we want to better and grow ourselves in an easier/happier way, get the people who not only love you but also know how to love you in a way that best suits you, meaning that they mostly understand what you need, what you truly want, and what will make you happy. It's hard - it requires maturity, empathy, knowledge, even intelligence and some luck. The way I think of to be responsible for my own life is to make cautious choices when it comes to letting someone really step into my life and letting someone go if we are not easily happy together. Basically find the right connection instead of cultivating it from scratch especially when we are already grown-ups. People can always naturally find their perfectly matched groups - if there's too much drama or torture, I think it means people involved could all have done better/wiser. Willingness to grow and growth pace might be the most important factors for me to identify whether it's "right".
 
 3. TODO: think more about to be idealistic is to be realistic
+
+## Is happiness a random phenomenon?
+
+Q: Running away from painful experiences or actively seeking pleasure? Running away from unhappiness or adhering to the declaration of independence and pursuing happiness?
+
+### Disease Model vs Health Model
+
+**Disease model**: The optimum level is the zero: let's just be OK; let's just not hurt.
+
+**Health model**: That's not enough; let's go beyond that; let's go to excitement, to the fun. Because the ideal is not just a tensionless state. It's the creative tension. It's flow*.
+
+*Flow: flow is the state where we're excited, where we're engaging what we're doing, where it's much more than being "comfortably numb". In fact, it's being a little bit uncomfortable; it's being outside of our comfort zone; it's being in our stretch zone - not the panic zone, where there's excitement, where there's some nervousness. There's also growth there.
+
+### Class Notes
+
+1. What the world needs, more than anything else, is **practical idealists**. "How can I make the world a better place?"
+
+2. Idealism and good intentions are not enough. That's why we should merge, mate research and practice.
+
+3. How much do genes matter? How much is it about nature versus nurture? Significant similarities among those twins who were apart at birth, had entirely different enviornments, reared in different contries, are they share very similar personalities and their well-being and happiness levels were incredibly similar. -> 《Happiness is a Stochastic Phenomenon》? no -> level of happiness is not only determined by their genes but also their experiences
