@@ -108,4 +108,30 @@ Q: Running away from painful experiences or actively seeking pleasure? Running a
 
 2. Idealism and good intentions are not enough. That's why we should merge, mate research and practice.
 
-3. How much do genes matter? How much is it about nature versus nurture? Significant similarities among those twins who were apart at birth, had entirely different enviornments, reared in different contries, are they share very similar personalities and their well-being and happiness levels were incredibly similar. -> 《Happiness is a Stochastic Phenomenon》? no -> level of happiness is not only determined by their genes but also their experiences
+3. How much do genes matter? How much is it about nature versus nurture? Significant similarities among those twins who were apart at birth, had entirely different enviornments, reared in different contries, and they share very similar personalities and their well-being and happiness levels were incredibly similar. -> 《Happiness is a Stochastic Phenomenon》? no -> level of happiness is not only determined by their genes but also their experiences.
+
+4. Let's not only study what is working, but also **study the best**. Let's study the most successful people, the most successful relationships, and learn from that. <u>If we study our best experiences when we are at our happiest, when we are at our most successful, when we thrive the most within the relationship, we can learn from it and apply it to our future as well</u>. **When we study our average, we are describing our live. When we are studying the best within ourselves, we are potentially prescribing.** If we learn from these experiences in ourselves, the question is no longer whether or not it's possible to experience it more and more in our lives. The question is "<u>how is it possible to experience it</u>".
+
+## Belief as Self-Fulfilling Prophecies
+
+### Premise: Happiness
+
+1. Positive emotions have an evolutionary reason, that they have a purpose beyond just making us feel good. For example, they help us think beyond what we are thinking right now, broaden our thinking; they help us build relationships; they help us build capacities.
+
+2. What happens when we experience negative emotions is that our consciousness, our thinking narrows and constricts. We focus just on one thing. It could be a good thing but I can be in "fight or flight" mode. It's not good to continue narrowing and constricting beyond the threat or the hardship. Very often we enter a downward spiral, a vicious cycle when we go into this narrow and constrict mode. Narrow & Constrict -> Broaden & Build (virtuous cycle) -> create an upward spiral
+
+3. "I want to be happy" sounds selfish? Yes. Well, **equating to selfishness and immorality is the No.1 cause, subconsciously mostly, but not only, No.1 cause of unhappiness. Because people feel guilty about pursuing their own happiness.** People feel guilty at times feeling good about themselves. How can I pursue my happiness when there's so much suffering in the world? Response - First of all, **happiness is a positive sum game**, not a zero sum game, neither a negative sum game. It's not that my happiness takes away from other people's happiness. **Because happiness is contagious**. If I'm happier, I'm more likely to contribute to other people's happiness and wellbeing. Being happy, in other words, is also a moral state in the sense of actually contributing to other people's wellbeing. It's like passing on light. (Note: maybe we should make decisions based on whether it's making ourselves happy first and think of other ways to ensure people around will be happy as well later on instead of taking too many other factors into consideration and losing our own light eventually - that's probably why I was told to try to be more selfish sometime)
+
+4. **"Be the change you want to see in the world." - People mostly do what you do, rather than what you say.** The optimal way of spreading happiness is to work on your own happiness, because then you are leading by example. That applies to leadership and parenting.
+
+### Class Notes
+
+Example: Roger Bannister and the dream mile: there's no human limit on it.
+
+To sum up: Beliefs are self-fulfilling prophecies. Very oftern they determine how we perform. How well or how poorly we perform. They often determine how good or not so good our relationships are. They are the No.1 predictor of life success as well as wellbeing. 
+
+#### How beliefs shape reality
+
+1. Pygmalion story, 《My Fair Lady》, telling teachers a bunch of randomly picked students are their fast spurters  -> people can be changed and can be transformed. (Note: well I think first people have to own that potential, meaning that the beliefs don't come from nowhere or just wishes, and second they have to be self-willing to change/transform as in they think the change/transformation is beneficial to them and they can take the risk/cost. Otherwise, it's still a torture and won't work well)
+
+2. "Asch Conformity Experiment", "The obedience to authority". The power of the situation, obedience to authority. Why don't we create more positive situations instead that will help us lead happier and more moral lives? 1979 to 1959 retreat experiment as if 20 years younger. One week after, both mental and biological age decreased. 
