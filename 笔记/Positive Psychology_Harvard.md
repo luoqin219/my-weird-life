@@ -135,3 +135,15 @@ To sum up: Beliefs are self-fulfilling prophecies. Very oftern they determine ho
 1. Pygmalion story, 《My Fair Lady》, telling teachers a bunch of randomly picked students are their fast spurters  -> people can be changed and can be transformed. (Note: well I think first people have to own that potential, meaning that the beliefs don't come from nowhere or just wishes, and second they have to be self-willing to change/transform as in they think the change/transformation is beneficial to them and they can take the risk/cost. Otherwise, it's still a torture and won't work well)
 
 2. "Asch Conformity Experiment", "The obedience to authority". The power of the situation, obedience to authority. Why don't we create more positive situations instead that will help us lead happier and more moral lives? 1979 to 1959 retreat experiment as if 20 years younger. One week after, both mental and biological age decreased. 
+
+## A positive environment changes people
+
+Realized I somehow skipped this one which is actually expected to be explored before **Belief as Self-Fulfilling Prophecies**.
+
+### Human network as exponential function
+
+"We underestimate our capacity to effect change because we underestimate the growth of an exponential function." - **start small and pay it forward**
+
+### Internal factors vs External factors
+
+Example: tenure -> made it vs rejected
