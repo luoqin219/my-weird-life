@@ -147,3 +147,47 @@ Realized I somehow skipped this one which is actually expected to be explored be
 ### Internal factors vs External factors
 
 Example: tenure -> made it vs rejected
+
+1. External circumstances matter very little. Place of residents makes very little difference as well. Where we are, where we live, income levels, lottery, tenure, getting into our dream college, getting our dream job for you seniors - you'll get a spike in your level of wellbeing when you got this acceptance letter, but very quickly we go back to our base level. **One thing that does matter to our base level of wellbeing which is external circumstance is democracy versus oppression. People living in democracies are generally significantly happier than people living in dictatorships.**
+
+2. In long term, the problem is not lower these high expectations - the problem is **right** versus **wrong** expectations. It is wrong expectation to expect that getting into a certain place, getting a raise, finding our dream partner, is responsible for our happiness. That in and of itself will not make us happier. The right expectation is to believe in change from within. **Our readiness and potential to experience happiness is mostly depended on our state of mind, not on our status, or the states of our bank account. It's about changing our perception - state of mind. It's about changing our interpretation of the world, of what's happening to us, of our achievements, of our failures. It's about what we choose to perceive and what we choose to focus on. It's about transformation.**
+
+### Should we accept human nature or can we perfect it and can it change?
+
+Research by thomas Sowell: divide people into 2 camps: people with constrained vision on human nature versus people with unlimited vision on the same
+
+"live with it but channel flaws to the good" vs "it's perfectable. let's change"
+
+*Lecturer's view*: 
+
+Human nature is fixed. We have inclinations. We have certain instincts that are there and have been formed either God-given or evolutionary-given for millions of years that have been formed. They are not going to change any time soon. Not in our life time. It's fixed. We are stuck with them through good and ill. And all we can do after we accept this nature is to first understand it through research/search/introspection, and then after we understand it, make the best use of it. How can I channel my nature? 
+
+(*Personal Note: 98% agreed. This view will help lead to an easier life and less torture within human connections - do not try to change anyone else. But definitely will be willing to perfect/change myself if I feel necessary.*)
+
+### The permission to be human
+
+Child-rearing: "Over the next few months, you are going to be experiencing every single kind of emotion to the extreme and that's fine. That's natural."
+
+#### Active acceptance
+
+Understand that certain things I cannot change and certain things I can and ought to change. 
+
+#### ABC of psychology
+
+**Affect**: emotion
+
+**Behaviors**: action
+
+**Cogintions**: thoughts
+
+Unconditional acceptance and permission to be human relates primarily to our affect/emotions. That does not mean we need to accept our behavior and our cognition. 
+
+Example from Tal: I can have envy towards my best friend, which in and of itself does not make me a bad person. Envy is part of human nature, nothing good or bad about the envy. Nothing good or bad about experiencing the anger. Nothing good or bad about experiencing the depression or anxiety. However, the question is how do I choose to behave, to act as a result of it? That's where I can have moral or immoral behavior toward my best friend or baby, or other people in general. I can choose to envy my best friend and choose to behave generously and benevolently toward him. The same with cognition. I can feel it certain way but it doesn't mean that I need to resign to my thoughts about that feeling. It's not that helpful to ruminate about painful emotions. It's much helpful to write about them, to talk to other people about them, rather than just thinking about it constantly how miserable I am because my girlfriend just left and I haven't found anyone in Pinocchio's. Rumination doesn't help. **I don't necessarily accept all my irrational thoughts. The key is to be true to reality**.
+
+
+
+It's actually a course in **<u>REALITY PSYCHOLOGY</u>**. It's how quickly, how promptly we can recover from these painful emotions. In other words, how strong our psychological immune system is. And our psychological immune system strengthens when we give ourselves the permission to be human.
+
+
+
+"God, grant me the serenity to accept things I cannot change; the courage to change the things I can change; and the wisdom to know the difference."
