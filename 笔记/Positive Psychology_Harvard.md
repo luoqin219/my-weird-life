@@ -184,10 +184,40 @@ Unconditional acceptance and permission to be human relates primarily to our aff
 
 Example from Tal: I can have envy towards my best friend, which in and of itself does not make me a bad person. Envy is part of human nature, nothing good or bad about the envy. Nothing good or bad about experiencing the anger. Nothing good or bad about experiencing the depression or anxiety. However, the question is how do I choose to behave, to act as a result of it? That's where I can have moral or immoral behavior toward my best friend or baby, or other people in general. I can choose to envy my best friend and choose to behave generously and benevolently toward him. The same with cognition. I can feel it certain way but it doesn't mean that I need to resign to my thoughts about that feeling. It's not that helpful to ruminate about painful emotions. It's much helpful to write about them, to talk to other people about them, rather than just thinking about it constantly how miserable I am because my girlfriend just left and I haven't found anyone in Pinocchio's. Rumination doesn't help. **I don't necessarily accept all my irrational thoughts. The key is to be true to reality**.
 
-
-
 It's actually a course in **<u>REALITY PSYCHOLOGY</u>**. It's how quickly, how promptly we can recover from these painful emotions. In other words, how strong our psychological immune system is. And our psychological immune system strengthens when we give ourselves the permission to be human.
 
-
-
 "God, grant me the serenity to accept things I cannot change; the courage to change the things I can change; and the wisdom to know the difference."
+
+## Believe in yourself
+
+**Question**: how can we **create a positive environment for ourselves**, where we are primed by the positive, where we can be happier, more successful and so on.
+
+**Some options**: 
+
+1. **Have pictures of people you love or places you love, the importance of these things is that even if you don't see them, you see them**. So on the subconscious level it's still there. Even though on the subconscious level, when people are primed, tehy don't really see the word, see achievement on the screen, when it's there for 25 mini-second, they don't really see it, but it registers. So even if a picture is there and you don't really see it, or not really conscious of it, mindful of it, it still has an impact on you. 
+
+2. **Have pleasant object**, whether it's memorabilia, whether it's flowers, whether it's art, your favorite art. (Tal showing his daughter's paintings here - saying he's insured these well-known artist' arts so no pressure :p ) 
+
+3. **Have some quotes**: Camus - "In the depth of winter, I finally learned that there was within me an invincible summer."
+
+4. Have your favorite books next to you. Listen to music, but listen to it mindfully, not just as background music but the music that inspires you, whether it's rocky, whether it's Eminem, whoever it is. Watch films that inspire you.
+
+### Are some self-help messages correct?
+
+**《The Power of Positive Thinking》 - Norman Vincent Peale**
+
+"Have great hopes and dare to go all out for them. Have great dreams and dare to live them. Have tremendous expectations and believe in them."
+
+**《The Secret》**
+
+The law of attraction - you attract to your life whatever you imagine, whatever you believe in.
+
+**Notes**
+
+They draw on a real truth and then blow it out of proportion. There's some truth in the fact that our mind creates reality. But that's only part of the truth. We create reality or rather we co-create reality. If you believe you are likely to succeed, you are much more likely to succeed. But that has to come with a lot of hard work and persistence, it has to come with a lot of failure, and learning from that failure. Those self-help books and messages are over-promise and under-deliver, which at times can be destructive. There are things out there. When we say everything's up to us, everything is created by the law of attraction, then it's a prescription maybe in short term for inspiration and for belief and for well-being, but in the long term, it's for frustration, for guilt, and for unhappiness. 
+
+### Research on power of mind
+
+**Self-efficacy**: "Beliefs in personal efficacy affect life choices, level of motivation, quality of functioning, resilience to adversity and vulnerability to stress and depression. People who regard themselves as highly efficacious act, think, and feel differently from those who perceive themselves as inefficacious. They produce their own future, rather than simplay foretell it." - this can be learned. It takes time, it takes effort. It's malleable. (*Note:* I remember feeling really really bad when I first realized I cannot always be top1 or cannot be liked by everyone around me, and had to deal with the fact I am not the center of the world. But I think the critical part is always know what type of person you want yourself to be and love yourself. The life you want is the life you have to make. No matter how much cost it will take - being yourself and in the meantime taking care of people you really care about require wisdom and bravery - the hardest part is probably be honest with yourself, choose whatever you really want and take the responsibilty to cope with the consequences as well as possible.)
+
+**Self-esteem**: 0.7 correlation between self-esteem and wellbeing.
