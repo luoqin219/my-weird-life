@@ -274,9 +274,9 @@ It's also about being pervasive or specific. Pessimists look at things that's be
 
 *Tal telling his story pursuing Rena with funny BGM : ))))*
 
-"And though I had very high expectations, and though I envisioned success. I closed my eyes and I saw myself succeeding. She was not interested. She didn't want me. Now when my mother told me she believed in it. She told me 'you are a big find'. (a joke i could 100% sure I understand right away without doing research) But it didn't work. And again, don't get my wrong. I'm very grateful to my mom. I literally had 24/7 Marva Collins in my house. I owe so much to my mom. However, in this case, it probably was not the realistic belief. How do we identify what is realistic and what is not?"
+"And though I had very high expectations, and though I envisioned success. I closed my eyes and I saw myself succeeding. She was not interested. She didn't want me. Now when my mother told me she believed in it. She told me 'you are a big find'. (a joke i couldn't be 100% sure I understand right away without doing research) But it didn't work. And again, don't get me wrong. I'm very grateful to my mom. I literally had 24/7 Marva Collins in my house. I owe so much to my mom. However, in this case, it probably was not the realistic belief. How do we identify what is realistic and what is not?"
 
-##### Connection between postive thinking and reality
+#### Connection between postive thinking and reality
 
 The Stockdale paradox - finding the tension, reconciling the tension. People survived in harsh prisoning had two characteristics: 1) they believe that they would get out, they have faith that one day they would be free; 2) they have realistic beliefs and evaluation of the situation.
 
@@ -284,7 +284,7 @@ The Stockdale paradox - finding the tension, reconciling the tension. People sur
 
 False optimism sonner or later means disillusionment, anger and hopelessness. 
 
-##### The secret of success proven by research
+#### The secret of success proven by research
 
 **It's optimism, passion and hard work.**
 
@@ -292,7 +292,7 @@ Why people who care about us try to lower our expectations? Because they are con
 
 The vicissitudes of life - the ups and downs around a base level of well-being. The good news is I can take more risks. It's not the end of world if I fail here or if I don't get my dream job. It's ok. I'll recover. We all do. The bad news is - am I stuck? So I was born with this base level according to my genes and I can't really improve? How do I raise this base level of happiness? 
 
-One specific thing proven by research on self-esteem is **to raise self-esteem is to cope as opposed to avoid. To cope meaning to put yourself on the line. To take risks not when you're in your panic zone but when you're in your stretch zone. To risk failure. To handle things, to deal things, to confront things that are important to you. To try out for that play. To speak out in session if you haven't. To go out to a place where you really want to go but never really try. To try. Because people who cope overtime have the same or sometimes more ups and downs. Still ups and downs. Permission to be human. But the base level increases.** (Note: I guess that's why I'm always like I gotta risk and try - you wouldn't know how much you can grow and definitely how much trouble you could get yourself into at same time until you try.)
+One specific thing proven by research on self-esteem is **to raise self-esteem is to cope as opposed to avoid. To cope meaning to put yourself on the line. To take risks not when you're in your panic zone but when you're in your stretch zone. To risk failure. To handle things, to deal things, to confront things that are important to you. To try out for that play. To speak out in session if you haven't. To go out to a place where you really want to go but never really try. To try. Because people who cope overtime have the same or sometimes more ups and downs. Still ups and downs. Permission to be human. But the base level increases.** (*Note: I guess that's why I'm always like I gotta risk and try - you wouldn't know how much you can grow and definitely how much trouble you could get yourself into at same time until you try.*)
 
 Why? 
 
