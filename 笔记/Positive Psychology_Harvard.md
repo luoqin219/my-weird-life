@@ -301,3 +301,7 @@ Why?
 2. When we fail after coping we realize that the actual pain that comes with failure is far less than the pain we imagine and that we associate with failure. When I realize this, I become more confident - I can handle it. I'm actually much more resilient than I thought I was. And those two levels increase.
 
 3. There's more success. There's no other way in terms of learning how to walk. There is no other way in terms of succeeding in art or in science or in business or in politics. Learn to fail or fail to learn.
+
+
+
+## Adversity or Opportunity
