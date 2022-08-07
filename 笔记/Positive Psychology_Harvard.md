@@ -286,7 +286,7 @@ False optimism sonner or later means disillusionment, anger and hopelessness.
 
 #### The secret of success proven by research
 
-**It's optimism, passion and hard work.**
+**First Secret: It's optimism, passion and hard work.**
 
 Why people who care about us try to lower our expectations? Because they are concerned about our happiness and self-esteem. People believe high expectations naturally lead to disappointment, which is actually wrong.
 
@@ -302,6 +302,28 @@ Why?
 
 3. There's more success. There's no other way in terms of learning how to walk. There is no other way in terms of succeeding in art or in science or in business or in politics. Learn to fail or fail to learn.
 
-
-
 ## Adversity or Opportunity
+
+### First technique: Work
+
+It's not enough, very often, it's even detrimental to just give the positive talk, the positive affirmation. Whether it comes from the outside or from the inside, maybe part of the equation, certainly can't be all. Rather than talk, we need action. We need to put hard work into whatever it is, we want to be more confident about, and we need to cope. We need to put ourselves on the line, because hard work and coping inevitably leads to success. And that success contributes to our self-efficacy, to our self-confidence. And then, that self-confidence in turn motivates us to work harder.
+
+#### Failure is underrated
+
+Tal: "One of the things that I wish for you is that you fail more. I'm not saying it ingest. I really do. And coupled with that, I hope that when you fail, you will also learn to interpret it in a different way than most of us usually interpret failure. Cause there's no other way to succeed, there's no other way for growth."
+
+Soren Kierkegaard: "To dare is to lose one's footing momentarily. Not to dare is to lose oneself." —— to lose one's footing temporarily is the failure that comes inevitably when we cope, when we try, when we have high expectations. Not to dare is to lose oneself, that is when we don't cope, when we avoid. When we constantly avoid challenges, when we constantly shone difficult experiences, when we don't give ourselves the permission to fail, a downward spiral is created, in terms of our self-esteem, in terms of our success, in terms of our well-being.
+
+### Second technique: Imagining Success
+
+**Imagine both journey and the destination.**
+
+You have to evoke emotions to create motion, whether it's in our imagination or in a speech to the nation.
+
+### Third technique: Cognitive therapy
+
+**Basic premise: thoughts drive emotion.**
+
+Event -> Evaluation (thought) -> Emotion -> Motion
+
+**We need to restore sense of rationality, we need to restore the real.** 
