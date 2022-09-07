@@ -320,10 +320,38 @@ Soren Kierkegaard: "To dare is to lose one's footing momentarily. Not to dare is
 
 You have to evoke emotions to create motion, whether it's in our imagination or in a speech to the nation.
 
-### Third technique: Cognitive therapy
+### Third technique: Cognitive therapy (bring realism)
 
 **Basic premise: thoughts drive emotion.**
 
 Event -> Evaluation (thought) -> Emotion -> Motion
 
 **We need to restore sense of rationality, we need to restore the real.** 
+
+"Where do I distort the reality? Where do I have distortion in terms of my evaluation and in terms of my thoughts that lead to certain negative emotions that are unnecessary?"
+
+> R. Lee Sharpe - 《A bag of tools》
+> 
+> 
+> 
+> Isn't it strange, how princes and kings,
+> 
+> and clowns that caper in sawdust rings,
+> 
+> and common people like you and me,
+> 
+> are builders for eternity?
+> 
+> Each is given a list of rules,
+> 
+> a shapeless mass and a bag of tools;
+> 
+> and each must fasion your life is flown,
+> 
+> a stumbling block or a stepping stone.
+
+#### Notes
+
+1. "Most people go through crucibles, but there are certain people who are able to find benefit in these crucibles and grow as a result. **Never let a good crisis go to waste**, whether it's professionally, whether it's interpersonally, whether it's intra-personally in terms of what you're experiencing."
+
+2. "While I don't believe that things happen for the best, I do believe some people are able to make the best of things that happen. Things don't happen for the best necessarily, but there are some people who accept the situation and then are able to make the best of it. The same with any crisis."
