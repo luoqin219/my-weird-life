@@ -21,6 +21,7 @@ Lighthouse might not stay close for a while, but it's there shining bright from 
 
 #### Updates on 8/13/2024
 没想到两年前写过这么好的东西！其实两年后反而没有再这么抽象得思考过亲密关系了，大概年幼的时候根本没有尝试过（笑。我依然认同这些观点，但也认识到关系不只是高屋建瓴得挥斥方遒，更是两个人之间沟壑阴影下的藻荇交横。
+
 这半年工作生活全然是极限挑战模式，burnout后的洞穴期长之又长到现在还没出去，开始越发接受很多事情不仅无趣且做不到自己的理想程度。作为组里第五个向外跑且被扣下拥有2-month transition period的人还在为即将成为ex组的项目发愁。和许多跑在我前面的老大哥认真聊了很多句人生，结论是“compartmentalizing and limiting what we actually care about (at work? at life?) is something we all should work on getting better at.” At end of the day, work is just work.
 
 聊回lighthouse。When you wish you could be someone's lighthouse, you are mostly screwed, in a good way though. When you have someone as your lighthouse, you are the luckiest person in the world.
