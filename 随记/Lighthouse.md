@@ -17,3 +17,11 @@ Lighthouse might not stay close for a while, but it's there shining bright from 
 生活的柴米油盐或许很难，好的爱情应当是两个人并肩一起快乐地解决层出不穷的问题，携手写下闯关经验，然后挽着手勇敢走向下一个关卡。因为好的关系意味着你们不仅是爱人，更是彼此的好友、战友、老师和幼儿园同班同学。
 
 从短期来看是”我一见你就笑“、”经历过最温柔共振“，长期来看是”情人游天地，日月换行李“，是”与你说些无聊事，再走几千里“。回到理性的说辞，大概是互相吸引的两个成长型人格一起期待未来的共同成长，也可以偶尔偷懒做对小孩。
+
+
+#### Updates on 8/13/2024
+没想到两年前写过这么好的东西！其实两年后反而没有再这么抽象得思考过亲密关系了，大概年幼的时候根本没有尝试过（笑。我依然认同这些观点，但也认识到关系不只是高屋建瓴得挥斥方遒，更是两个人之间沟壑阴影下的藻荇交横。
+这半年工作生活全然是极限挑战模式，burnout后的洞穴期长之又长到现在还没出去，开始越发接受很多事情不仅无趣且做不到自己的理想程度。作为组里第五个向外跑且被扣下拥有2-month transition period的人还在为即将成为ex组的项目发愁。和许多跑在我前面的老大哥认真聊了很多句人生，结论是“compartmentalizing and limiting what we actually care about (at work? at life?) is something we all should work on getting better at.” At end of the day, work is just work.
+
+聊回lighthouse。When you wish you could be someone's lighthouse, you are mostly screwed, in a good way though. When you have someone as your lighthouse, you are the luckiest person in the world.
+写到这里的我下意识抬头看了眼显示器上的屏幕挂灯，笑了一下。
