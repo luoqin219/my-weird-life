@@ -26,3 +26,8 @@ Lighthouse might not stay close for a while, but it's there shining bright from 
 
 聊回lighthouse。When you wish you could be someone's lighthouse, you are mostly screwed, in a good way though. When you have someone as your lighthouse, you are the luckiest person in the world.
 写到这里的我下意识抬头看了眼显示器上的屏幕挂灯，笑了一下。
+
+#### Updates on 11/05/2024
+再读一次还是很难相信自己对爱情和关系有过这么单纯的期待。如果你问现在的我还相信所谓的lighthouse吗，答案一定是“我不相信”。后来的我觉得关系是很脆弱的，伤人的言语和独自熬过去的每一个时刻都历历在目以至于快乐都好像在梦里。后来的我终于承认或许还是一个人比较快乐。我羡慕每一个尚在感情里挣扎的人，至少他们还相信什么。
+
+但至少我从来都无愧于心。
